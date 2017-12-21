@@ -1,0 +1,1 @@
+# pegaladrao-privacy-policy
